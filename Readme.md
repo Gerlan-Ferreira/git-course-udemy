@@ -1,4 +1,3 @@
-teste alterado novamente ajustado
+Git Course
 
-Vai tomar no cu mizera, nojento, ceboso,
-curso buceta desse!
+Alterando o readme
